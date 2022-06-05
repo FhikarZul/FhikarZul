@@ -1,2 +1,2 @@
 ### Hi there 👋
-<img src="https://dribbble.com/shots/14792345-A-Cat-Gif/attachments/6498747?mode=media">
+<img src="https://cdn.dribbble.com/users/6620596/screenshots/14792345/media/af61fa935b055891cb800a9e41ebb747.gif">
